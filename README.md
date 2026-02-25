@@ -1,1 +1,1 @@
-Lunovis, in silent skies,/ Moonlight whispers lullabies./ Stars align in cosmic dance,/ Night's soft glow in mystic trance.
+Lunovis in planitie stat,/ Eius lumen me revocat,/ Velut sidus in tenebris,/ Vivo cor ad astra vocat.
